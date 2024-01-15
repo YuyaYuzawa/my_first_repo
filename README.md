@@ -3,4 +3,6 @@ First training
 
 Yuya Yuzawa
 
-YUYA YUZAWAVending Supply & Demand Management Senior Staff
+YUYA YUZAWA
+
+Vending Supply & Demand Management Senior Staff
