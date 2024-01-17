@@ -4,3 +4,5 @@ First training
 Yuya Yuzawa
 
 YUYA YUZAWA
+
+1990/11/13
