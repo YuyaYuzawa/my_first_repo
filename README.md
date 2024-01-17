@@ -5,4 +5,6 @@ Yuya Yuzawa
 
 YUYA YUZAWA
 
+Vending
+
 1990/11/13
